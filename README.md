@@ -17,7 +17,6 @@ Cho-Eun21.github.io
 
 ------
 
-![https://search.pstatic.net/common/?src=http%3A%2F%2Fblogfiles.naver.net%2FMjAyMDA2MDNfMjE2%2FMDAxNTkxMTQ5MDA2Njcw.DO_TDi5ENmfbbWtOI9s6-uW7GQH4QmIKYeeBB8xhxfog.Ql7XAuYtHhtH0P-M3t1_TOEguWsEI2qG7cpJNw0VAScg.PNG.hyerica4473%2F%25C7%25CF%25B3%25C9%25C0%25CC_%25B1%25E2%25BC%25F7%25BB%25E7.png&type=sc960_832]
-
+![사진](https://lh3.googleusercontent.com/proxy/XwIh0jw_dbiRMFuyFNg0Og5g9NwfBJMf--Z4wSYB3BsCpgAsuOgifkfjcStPOSR7Y-c2bqG0e67YjSXRSdTwGUsatxftlCi0xfQIOPSNX3tm0XIU7LG60_dIXNcEkDRxWGvHWdN81trxuFButwGBIJWOnSw0XWH3Ri-Rqq0D-WM9IojyFSJF9s-ydqe5tzEhLHXnQHfXxuEBiFSTgQP-AXYeejSg8JaQNyxEsLrYrjFOMhCWZhyt6tjMkR3wxN4dra4YLnTet8QNduGzFW8zvfsPt2fdg9qEpZq35pyIC_9bipj5IjkuPcXvrCbt-Oq6SEdPpKYhe8cbHqEKLA)
 
 
