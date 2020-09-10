@@ -17,6 +17,6 @@ Cho-Eun21.github.io
 
 ------
 
-![사진](https://lh3.googleusercontent.com/proxy/XwIh0jw_dbiRMFuyFNg0Og5g9NwfBJMf--Z4wSYB3BsCpgAsuOgifkfjcStPOSR7Y-c2bqG0e67YjSXRSdTwGUsatxftlCi0xfQIOPSNX3tm0XIU7LG60_dIXNcEkDRxWGvHWdN81trxuFButwGBIJWOnSw0XWH3Ri-Rqq0D-WM9IojyFSJF9s-ydqe5tzEhLHXnQHfXxuEBiFSTgQP-AXYeejSg8JaQNyxEsLrYrjFOMhCWZhyt6tjMkR3wxN4dra4YLnTet8QNduGzFW8zvfsPt2fdg9qEpZq35pyIC_9bipj5IjkuPcXvrCbt-Oq6SEdPpKYhe8cbHqEKLA)
+![학교](https://www.hanyang.ac.kr/documents/20182/73809/HYU_logotype_ERICA_blue_kor.png/98ff3a91-6b4d-412c-b3ef-7b97a6c4a5cb?t=1474071762079)
 
 
